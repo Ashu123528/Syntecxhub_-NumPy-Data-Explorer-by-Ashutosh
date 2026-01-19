@@ -1,0 +1,1 @@
+# Syntecxhub_-NumPy-Data-Explorer-by-Ashutosh
